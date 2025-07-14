@@ -1,0 +1,1 @@
+Kişisel web arayüzünde cv
